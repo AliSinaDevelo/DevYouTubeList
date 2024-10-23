@@ -597,6 +597,7 @@
 ## Farsi
 
 * [ParsClick](https://www.youtube.com/c/Parsclicktv)
+* [JadiMirmirani](https://www.youtube.com/@JadiMirmirani)
 
 
 ## Brazilian
